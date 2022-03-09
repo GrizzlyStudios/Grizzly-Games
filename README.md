@@ -1,1 +1,1 @@
-# Grizzly-Games
+# Grizzly Games
